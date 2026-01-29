@@ -7,4 +7,4 @@
 
 ⁺　　˳　　˙ ⠀　⠀  　⠀⠀　⠀  　⠀or send me a message of who you are, otherwise i may end up ignoring it.
 
- ⠀　⠀  　⠀⠀　⠀  Not a roleplayer, please spare my life, roleplayers.
+ ⠀　⠀  　⠀⠀　⠀  
