@@ -1,7 +1,7 @@
 ⠀_ _
 ⠀　⠀  　⠀ llos   ⋮  she/her!　 ⋮ 　lesbian  𐙚
 
-⠀　　𐙚　　03/13    ⠀　⠀  　⠀17!! 　 ₊  ◞　
+⠀　　𐙚　　03/13    ⠀　⠀  　⠀18!! 　 ₊  ◞　
 
 　˙　　˳　　⁺　　Find me mainly on discord at "llos". Make sure to let me know if you add me
 
